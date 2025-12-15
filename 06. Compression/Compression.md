@@ -44,7 +44,7 @@ Maybe then we'll work, maybe then we'll be okay.
 If I compress myself a little more,
 Delete a little more, maybe then you'll stay.
 If I compress myself a little more,
-Maybe then we'll work, maybe then we'll be okay.
+Maybe it won't hurt, and maybe I will be okay.
 
 (Outro)
 I'm so small now.
